@@ -1,1 +1,1 @@
-Heres a portfolio of my projects from Harvad University's Courses
+Heres a portfolio of my projects from Harvad University
